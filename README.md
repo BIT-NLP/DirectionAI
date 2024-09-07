@@ -8,4 +8,4 @@ DirectionAI通过最前沿的人工智能技术，打造出一个充满活力和
 
 通过DirectionAI平台，教育变得更加灵活与高效。学生和教师都可以在统一的平台上享受这种智能支持，拓展学习和教学的深度与广度。
 
-DirectionAI官网：www.directionai.cn
+你想体验什么样的教育？DirectionAI官网：www.directionai.cn
